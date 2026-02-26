@@ -1,0 +1,1 @@
+Mi nombre es Alberto Vazquez Enriquez, me gustaria crear un proyecto del cual pueda desarrollar una página web que pueda hacer uso en mi vida cotidiana en el cual necesito un equipo de trabajo para poder resolverlo mis necesidades 
